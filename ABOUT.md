@@ -89,4 +89,4 @@
 
 **Interests**: crocheting, spending time with the grandkids,coding, meetups, photography ,church
 
-**Location**: Wyoming, Michigan (origially from Germany)
+**Location**: Wyoming, Michigan (originally from Germany)
